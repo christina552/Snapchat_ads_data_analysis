@@ -1,1 +1,1 @@
-[![Project Video](https://play-lh.googleusercontent.com/KxeSAjPTKliCErbivNiXrd6cTwfbqUJcbSRPe_IBVK_YmwckfMRS1VIHz-5cgT09yMo)](https://clipchamp.com/watch/B4iXUcoDNwk)
+[![Project Video](https://thumbs.dreamstime.com/b/button-video-player-finger-click-button-social-media-web-button-channel-video-content-vector-illustration-eps-button-video-190115141.jpg)](https://clipchamp.com/watch/B4iXUcoDNwk)
